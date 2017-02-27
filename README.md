@@ -1,2 +1,2 @@
 # garizumarako
-Gaarizuma aldian erabiliko mdodazan abesti eta antifonak
+Garizuma aldian erabiliko mdodazan abesti eta antifonak
